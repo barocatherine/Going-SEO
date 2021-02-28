@@ -1,2 +1,2 @@
 # Going-SEO
-https://www.awesomescreenshot.com/image/6342514?key=956e6810f77ee8bc77da014791d09d18
+https://www.awesomescreenshot.com/image/6342624?key=71136aeab59a1576010190adfb52b85b
